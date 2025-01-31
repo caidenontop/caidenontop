@@ -1,7 +1,7 @@
       ✦ @caidenontop ✦     ┆             NOW PLAYING              ┆          STAN LIST           
-         - he/him           ┆   Red Ruby Da Sleeze - Nicki Minaj   ┆ Rina Sawayama    Nicki Minaj 
-         - minor            ┆       ───────────────⚪────          ┆ Beyonce          RAYE        
-         - school account   ┆  ◄◄⠀▐▐ ⠀►►⠀⠀ ⠀ 2:58/ 3:34 ⠀ ───○ 🔊 ┆ SZA              Mitski      
+         - he/him           ┆     II HANDS II HEAVEN - Beyoncé     ┆ Rina Sawayama    Doechii
+         - minor            ┆       ───────────────⚪────          ┆ Beyoncé          RAYE        
+         - school account   ┆  ◄◄⠀▐▐ ⠀►►⠀⠀ ⠀ 2:58/ 5:41 ⠀ ───○ 🔊 ┆ Magdalena Bay    Rachel Chinouriri                    
  
 <!---
 caidenontop/caidenontop is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
